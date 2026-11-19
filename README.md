@@ -6,4 +6,4 @@ A student from 9-Arayat
 
 # Francesca Marie A. Raymundo
 
-A cute student from 9-Arayat
+Cutest student from 9-Arayat
