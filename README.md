@@ -1,5 +1,5 @@
-# CS3_2Q_Arayat_G10
-This is the official repository of Arayat's Group 10
+# Desiree L. Pasawa
+Coolest student in 9-Arayat
 
 # Zakiyyah Lane P. Muneer Munnilakath
 A student from 9-Arayat
